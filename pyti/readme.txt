@@ -1,0 +1,1 @@
+Buradaki hiçbir şey ciddi değildir. Bir kısmı çalışmaz. Hobi amaçlı denediğim şeylerdir. Tek amacı ciddi projeler gelene kadar burayı doldurmaktır
